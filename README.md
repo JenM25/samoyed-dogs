@@ -28,4 +28,5 @@ How to Keep a Samoyed Healthy
 
 * * *
 + Samoyeds are priced typically over $600. They can be fairly expensive and require a great deal of time and attention to properly raise them.
+
 + However, their cute appearance and lovable attitudes make it worth it.
