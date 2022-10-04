@@ -10,4 +10,5 @@ An ultimate guide about samoyed dogs.
 Samoyeds are super friendly dogs that love being around people and chasing things. They can be energetic and lively when playing with their owner. They are very clever, as well. Samoyed dogs even help pull sleds through the snow in parts of the world. 
 ![Alt text](https://www.publicdomainpictures.net/pictures/40000/nahled/samoyed-dog-with-ball.jpg)
 
-
+Interested in adopting a samoyed? Visit this link to learn about how to properly care for them.
+This is [an example](http://example.com/ "Caring for Samoyeds") inline link.
