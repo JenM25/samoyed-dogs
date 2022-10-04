@@ -23,7 +23,7 @@ How to Keep a Samoyed Healthy
  - [x] Large spaces to run in
  - [x] Social interaction
 
-> Grooming the thick fur of samoyeds can be a hefty job because of how often they shed. It's important for samoyed dog owners to keeep up with brushing their dog's hair daily using a brush and combs for any tangles. Due to this, it's not uncommon for owners to find a lot of white fur covering their house furniture.
+> Grooming the thick fur of samoyeds can be a hefty job because of how often they shed. It's important for samoyed dog owners to **keeep up with brushing their dog's hair daily** using a brush and combs for any tangles. Due to this, it's not uncommon for owners to find a lot of white fur covering their house furniture.
 >> Samoyed fur is known to be similar to a wool. If you have any hair allergies, a samoyed dog may not be ideal to have around your house.
 
 * * *
