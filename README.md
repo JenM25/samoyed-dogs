@@ -29,6 +29,8 @@ Interested in adopting a samoyed? Visit this link to learn more about how to pro
 * * *
 + Samoyeds are priced typically over $600. They can be fairly expensive and require a great deal of time and attention to properly raise them.
 
-+ However, their cute appearance and lovable attitudes make it worth it.
++ **However, their cute appearance and lovable attitudes make it worth it.**
 
 ![Alt text](https://www.publicdomainpictures.net/pictures/40000/nahled/samoyed-dog-1362601490wNU.jpg)
+
+* * *
