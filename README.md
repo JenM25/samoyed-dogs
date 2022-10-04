@@ -11,4 +11,4 @@ Samoyeds are super friendly dogs that love being around people and chasing thing
 ![Alt text](https://www.publicdomainpictures.net/pictures/40000/nahled/samoyed-dog-with-ball.jpg)
 
 Interested in adopting a samoyed? Visit this link to learn about how to properly care for them.
-This is [an example](http://example.com/ "Caring for Samoyeds") inline link.
+This is [an example](http://example.com/ "Caring for Samoyeds")
