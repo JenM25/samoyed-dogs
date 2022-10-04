@@ -8,6 +8,6 @@ An ultimate guide about samoyed dogs.
 
 ### 2.) A Playful Personality
 Samoyeds are super friendly dogs that love being around people and chasing things. They can be energetic and lively when playing with their owner. They are very clever, as well. Samoyed dogs help pull sleds through the snow in parts of the world. 
-
+![Alt text](https://www.publicdomainpictures.net/pictures/40000/nahled/samoyed-dog-with-ball.jpg)
 
 
