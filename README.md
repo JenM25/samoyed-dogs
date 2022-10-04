@@ -27,4 +27,5 @@ How to Keep a Samoyed Healthy
 >> Samoyed fur is known to be similar to a wool. If you have any hair allergies, a samoyed dog **may not be ideal to have around your house.**
 
 * * *
-+ Hopefully now you learned more about samoyed dogs!
++ Samoyeds are priced typically over $600. They can be fairly expensive and require a great deal of time and attention to properly raise them.
++ However, their cute appearance and lovable attitudes make it worth it.
