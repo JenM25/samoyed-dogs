@@ -16,7 +16,7 @@ Interested in adopting a samoyed? Visit this link to learn more about how to pro
 
 * * *
 
-How to Keep a Samoyed Healthy
+### 3.) How to Keep a Samoyed Healthy
  - [x] Regular exercise
  - [x] Time to play
  - [x] Raw foods, both dry and wet in their diet
@@ -30,3 +30,5 @@ How to Keep a Samoyed Healthy
 + Samoyeds are priced typically over $600. They can be fairly expensive and require a great deal of time and attention to properly raise them.
 
 + However, their cute appearance and lovable attitudes make it worth it.
+
+![Alt text](https://www.publicdomainpictures.net/pictures/40000/nahled/samoyed-dog-1362601490wNU.jpg)
